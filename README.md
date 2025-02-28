@@ -1,6 +1,6 @@
 # Get 25% Off OMI with Promo Code AVA – Exclusive Discount!
 
-## Introduction
+![OMI Discount](https://imgur.com/a/ZcYn8O9)
 
 Looking for an innovative tool that can transform the way you work? OMI is designed to enhance productivity, streamline processes, and optimize performance. Whether you're a business owner, digital marketer, or entrepreneur, OMI provides powerful features to help you achieve your goals. And the best part? You can now **get 25% off** your subscription by using the **promo code AVA** at checkout! Read on to discover why OMI is a must-have and how you can claim your exclusive discount.
 

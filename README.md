@@ -1,8 +1,6 @@
-# ![Wava AI Discount](https://i.imgur.com/wow-ALsayax.jpg)
-
 # **Unlock 20% Off Wava AI with Promo Code AVA20 – Exclusive Deal!**
 
-## **Introduction**  
+# ![Wava AI Discount](https://i.imgur.com/wow-ALsayax.jpg)
 
 Are you looking for a powerful AI tool that makes content creation effortless? **Wava AI** is revolutionizing the way creators produce viral content with AI-generated voiceovers, video templates, and automated text/image generation.  
 

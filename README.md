@@ -28,7 +28,7 @@ OMI is more than just a tool – it’s a game-changer for businesses and profes
 
 Now is the perfect time to experience OMI with an exclusive **25% discount**! Follow these steps to claim your savings:
 
-1. Visit the official [OMI website][([https://www.omi.ai/](https://www.wava.ai/)).](https://www.wava.ai/)
+1. Visit the official [OMI website][([https://www.omi.ai/](https://www.wava.ai/)).]
 2. Choose your preferred subscription plan.
 3. Enter the promo code **AVA** at checkout.
 4. Enjoy **25% off** your purchase instantly!
